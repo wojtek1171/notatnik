@@ -23,7 +23,9 @@ Podatność na takie zjawiska wiążą się oczywiście z naszymi indywidualnymi
 
 Na ile jesteśmy w stanie zrozumieć innego człowieka? Jak duży jest rozdźwięk między tym, co dzieje się w głowie osoby wypowiadającej słowa: "Ależ boli mnie noga", a tym co dzieje się w naszej, gdy je usłyszymy. Jak dużym złudzeniem jest poczucie matki, że doskonale rozumie swoje dzieci?
 Wychodząc od takich pytań szybko możemy dojść do wniosku, że tak właściwie nie jesteśmy w stanie porozumieć się z nikim na bardzo głębokim poziomie i de facto jesteśmy skazani na samotność. Może nawet to co sami czujemy i jak to interpretujemy jest równie dalekie od stanu faktycznego.
+
 Bardzo często uciekając przed samotnością szukamy schronienia w miłości, romantycznej relacji. Po jakimś czasie jednak stan pierwotnego zauroczenia i odurzenia hormonami opada i zaczynamy czuć rozczarowanie. Rozczarowanie właśnie tą niemożnością dotarcia do drugiego człowieka i złudzenia kontaktu z nim. 
+
 Być może od tego poczucia nie da się uciec, gdy zabieramy się za zrozumienie świata wokół nas i prawdą jest to, co pisał Tadeusz Konwicki:
 >*Samotność jest przeznaczeniem ludzi inteligentnych.*
 
@@ -48,7 +50,7 @@ No właśnie, po co?
 
 A jeśli podzielimy się zdjęciami z wakacji z tysiącem innych osób tylko dla podbicia własnego ego i zaspokojenia próżności, to po co to wszystko? 
 
-No właśnie po co?
+No właśnie, po co?
 
 ## 4. Poszukiwanie szczęścia w samotności
 
