@@ -1,10 +1,8 @@
 ---
 layout: post
-title: "Jak nie bać się samotności"
+title: "Jak nie bać się samotności?"
 categories: misc
 ---
-# Jak nie bać się samotności?
-
 ## 0. Człowiek jako istota społeczna
 
 Silna potrzeba przynależności do grupy jest wpisana w naszą naturę. Z ewolucyjnego punktu widzenia osobniki, które potrafiły działać w sposób zorganizowany miały większą szansę na przetrwanie. Wpisują się w to takie koncepcje jak chociażby "Ewolucyjna teoria samotności"[1].
